@@ -1,16 +1,18 @@
-### Hi there 👋
+### Nhà cái B52
 
-<!--
-**b52cheap/b52cheap** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Cùng khám phá nhà cái bom tấn B52 - trải nghiệm giải trí đỉnh cao. Nhà cái B52 là ngôi nhà trực tuyến dành riêng cho môn thể thao với một dàn kèo cược hấp dẫn, độc đáo mà ít nơi có thể sánh bằng. Thu hút được lượng lớn người chơi đổ về, tạo nên một cộng đồng đa dạng và năng động. Ngoài phần thể thao, trang web chúng tôi còn sở hữu một thế giới Casino đầy phong cách để người chơi tận hưởng.
 
-Here are some ideas to get you started:
+. B52 club
+. B52 game đổi thưởng uy tín
+. web B52
+. trang chủ B52
+. nhà cái B52
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+https://b52.cheap/
+
+https://www.pinterest.com/b52cheap/
+
+https://www.youtube.com/channel/UCbz_oazl-SXJ1nMxOLsQoQA
+
+https://www.behance.net/b52cheap/info
+
